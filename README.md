@@ -9,3 +9,6 @@ https://docs.google.com/document/d/1C9-ZNN1z33VdtjcgbglWd7FbtvJRaM6Z-3bDLmwGNlo/
 
 17.11.22
 https://docs.google.com/document/d/1stVZUijx7LUej6reeSTBsGJ2jH0o5kEtKZNnrYkYa28/edit?usp=sharing
+
+21.11.22
+![image](https://user-images.githubusercontent.com/113091733/203046411-a47400d3-9790-43e3-bc32-f7b7bfa41604.png)
